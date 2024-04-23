@@ -8,6 +8,6 @@ https://www.youtube.com/watch?v=-SK6cvkK4c0
 
 vai mudar sua vida. 
 
-(um bj pro Ti que podia ser mais do que meu amigo...)
+(um bj pro Ti que podia ser mais do que só amigo...)
 
 desculpa eu viciei nessa música involuntariamente e eu amo muito kpop
